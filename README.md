@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Minossoline
+- 👀 I work as a Talent Acquisition at OmniChat
+- 📫 How to reach me ... https://www.linkedin.com/in/aline-minosso-4a342b151/
